@@ -1,1 +1,0 @@
-# Sint-Lucas-KSO---Backgrounds
